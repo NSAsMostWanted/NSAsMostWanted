@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on yo mama
 - 📫 How to reach me blacked.com
 - 😄 Pronouns: mo/lester
-- ⚡ Fun fact: The NSA knows more about you than yo ur own parents.  Trust me I've seen it.
+- ⚡ Fun fact: The NSA knows more about you than your own parents.  Trust me I've seen it.
 
 <!---
 NSAsMostWanted/NSAsMostWanted is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
